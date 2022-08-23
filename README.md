@@ -5,7 +5,7 @@ THE FACE TOOL <br><br>
 👵👴🧓👩‍🦰👨‍🦰🧑‍🦰👩‍🦱<br>
 👨‍🦱🧑‍🦱👩‍🦲👨‍🦲🧑‍🦲👩‍🦳👨‍🦳<br>
 🧑‍🦳👱‍♀️👱‍♂️👱👳‍♀️🧔🧔‍♂️<br>
-Artist Manifesto
+Artist Manifesto<br>
 What does “the face” mean in the overwhelmingly digitalized world, when the image, or in a way, the representation of one’s face became ubiquitous? THE FACE of oneself and the others blended into digital canvases we were immersed in, from cell phone screens to displays on street sides.
 
 <i>“Firstly there is the straightness of the face, its directness, its defenselessness. The skin of the face is at its most naked and defenseless (…) The face is exposed, vulnerable as if inviting an act of violence. At the same time, the face is what prohibits us from killing.
