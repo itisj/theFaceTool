@@ -1,11 +1,11 @@
 # theFaceTool
  
-THE FACE TOOL 
-👩👨🧑👧👦🧒👶
-👵👴🧓👩‍🦰👨‍🦰🧑‍🦰👩‍🦱
-👨‍🦱🧑‍🦱👩‍🦲👨‍🦲🧑‍🦲👩‍🦳👨‍🦳
-🧑‍🦳👱‍♀️👱‍♂️👱👳‍♀️🧔🧔‍♂️
-Artist Manifesto 
+THE FACE TOOL <br><br>
+👩👨🧑👧👦🧒👶<br>
+👵👴🧓👩‍🦰👨‍🦰🧑‍🦰👩‍🦱<br>
+👨‍🦱🧑‍🦱👩‍🦲👨‍🦲🧑‍🦲👩‍🦳👨‍🦳<br>
+🧑‍🦳👱‍♀️👱‍♂️👱👳‍♀️🧔🧔‍♂️<br>
+Artist Manifesto <br><br>
 
 What does “the face” mean in the overwhelmingly digitalized world, when the image, or in a way, the representation of one’s face became ubiquitous? THE FACE of oneself and the others blended into digital canvases we were immersed in, from cell phone screens to displays on street sides.
 
